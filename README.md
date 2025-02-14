@@ -232,7 +232,8 @@ Wei Long stepped through.
 
 CHAPTER 70: THE COSMIC ASCENSION
  
-Illustration: Merging with the Heavens and the Eternal Qi
+Illustration: ![chapter70](https://github.com/user-attachments/assets/103686b9-6feb-4340-95fe-c9a2523c13a1)
+Merging with the Heavens and the Eternal Qi
 
 At the peak of the Thunder Mountain, Wei Long faced the boundless cosmos. Below him, the storms raged as they always had, but now, they felt like whispers. The energy within him, the union of Yin and Yang, was no longer confined to his body. It stretched outward, merging with the heavens.
 
@@ -244,4 +245,3 @@ Wei Long knelt, his form glowing brighter and brighter as he surrendered his phy
 
 Wei Long was no longer bound by time, space, or form. He had become Qi itself, an eternal presence that would guide those who followed.
 
-[def]: chapter1.jpg

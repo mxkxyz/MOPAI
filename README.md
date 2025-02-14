@@ -1,6 +1,7 @@
 # THE LOST SCROLL OF MO PAI
 	
- 
+ ![BOOKCOVERmoPai](https://github.com/user-attachments/assets/e4ea2232-981a-4e11-9432-8df992f94d23)
+
 The Forbidden Path to Immortality
 Brought to you by
 Michael J. Stirling
@@ -24,9 +25,11 @@ If you continue reading, know this: there is no return...
 
 
 
-![alt text][def]
 
 CHAPTER 1: THE BOY WHO CHASED LIGHTNING
+![chapter1](https://github.com/user-attachments/assets/3240f47f-619e-4f0e-9478-a8a9e02a5a0c)
+
+
  The Journey to the Hidden Temple
 
 Wei Long had always been different.
@@ -57,9 +60,10 @@ Wei Long understood.
 
 The first trial had begun.
 
-![alt text](chapter2.jpg)
+
 CHAPTER 2: THE FIRST GATE – SILENCE AND STILLNESS
  
+![chapter2](https://github.com/user-attachments/assets/8d628bc0-9381-4b19-8af2-e3055ff14273)
 
 Embryonic Breathing & The Gathering of Yin Qi
 
@@ -74,7 +78,8 @@ He could hear the insects in the grass—not just their movement, but their vibr
 The master appeared. "You have heard the silence. You are ready."
 
 The gates opened. The path had begun.
-![alt text](chapter3.jpg)
+
+
 CHAPTER 3: THE BREATH OF THE WOMB
  
 
@@ -109,7 +114,9 @@ But the balance was unstable. Too much Yin, and he would become a ghost—a shad
 To move forward, he had to awaken its opposite.
 
 He had to create fire within.
-![alt text](chapter5.jpg)
+
+![chapter3](https://github.com/user-attachments/assets/c43ef701-1276-4dd5-9c8e-caba45c39458)
+
 CHAPTER 4: THE BIRTH OF THUNDER
 
 Level 3-4 – Yang Qi Cultivation & Bioelectric Awakening
@@ -135,7 +142,9 @@ The monks fell silent. Even the master seemed shaken.
 Wei Long had unlocked bioelectric Qi—his body now generated electricity like a living storm.
 
 But this was only the beginning.
-![alt text](chapter6.jpg)
+![chapter5](https://github.com/user-attachments/assets/bf38ef1c-f5fe-48af-99c3-8c0a650cd52f)
+
+
 CHAPTER 5: THE BALANCE OF DEATH
  
 
@@ -171,7 +180,9 @@ But greater power meant greater trials. And now, the true tests would begin.
 
 
 CHAPTER 20: THE DRAGON'S SPIRAL
- ![alt text](chapter20.jpg)
+![chapter20](https://github.com/user-attachments/assets/79680f36-a98b-4e20-a189-01e90ec132cf)
+
+ 
 Illustration: The Coiling Dragon and the Yin-Yang Core
 
 The storm raged on for three days and nights as Wei Long sat unmoving, his body battered by wind and rain atop the peak of Thunder Fang Mountain. Each breath he took resonated deep within, the rhythm of Yin and Yang colliding yet dancing in harmony. The teachings of the Elder Master echoed in his mind:
@@ -183,7 +194,9 @@ In his dantian, the energies began to spin. At first, they clashed violently, th
 His entire body vibrated as his Qi spiraled into unity. The energy surged through him, and with it came clarity: the Dragon Spiral was not simply power—it was creation itself. He opened his eyes as a bolt of lightning split the sky, illuminating the valleys below. For the first time, the storm obeyed him.
 
 CHAPTER 30: THE GOLDEN VEINS OF HEAVEN
-![alt text](chapter30.jpg)
+
+![chapter30](https://github.com/user-attachments/assets/1aa593e1-40e9-4878-ae1d-a329d33530cd)
+
 Illustration: Qi Channels Illuminated Like Rivers of Light
 
 Wei Long knelt in the Chamber of Thousand Suns, an ancient hall buried deep beneath the mountain. Its walls shimmered with inscriptions of the old masters, glowing faintly with residual energy. At the center of the chamber stood a pool of liquid gold, said to be infused with the essence of the sun itself.
@@ -199,7 +212,8 @@ With his mind clear, Wei Long guided the energy instead of resisting it. His mer
 When he emerged, his eyes shone with golden light. The Elder Masters greeted him in silence, for there were no words needed for those who had passed this trial.
 
 CHAPTER 50: THE CELESTIAL SERPENT
-![alt text](chapter50-1.jpg) 
+ ![chapter50](https://github.com/user-attachments/assets/81733f86-a9c8-4680-a847-164af44c82a7)
+
 Illustration: A Divine Serpent Guarding the Gate of Eternity
 
 Wei Long stood before the Gate of Eternity, an immense circular portal that seemed to pulse with the heartbeat of the universe. Every inscription on its surface shimmered and shifted, resisting comprehension. Surrounding the gate was the Celestial Serpent, a being so vast it coiled upon itself in infinite loops.
